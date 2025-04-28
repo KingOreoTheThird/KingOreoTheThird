@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning stuf
 - 📫 How to reach me idk
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: i hate everyone in my class
+- ⚡ Fun fact: once I had to sing infront of my whole entire school. Ill let you guess what happened
 
 <!---
 KingOreoTheThird/KingOreoTheThird is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
